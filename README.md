@@ -1,0 +1,2 @@
+# Tugas11_PCD_MochCahyaGumilar-20220040116-_TI22B
+Tugas11_PCD_MochCahyaGumilar-20220040116-_TI22B_Segmentasi_LocalThresolding
